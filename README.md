@@ -1,4 +1,4 @@
-### Hi, I'm Vidhi! 👋
+### Hey there — I'm Vidhi! 👋
 
 #### I'm a second year Software Engineering student @ University of Waterloo
 
