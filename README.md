@@ -6,3 +6,5 @@
 - 📩 Reach me at vruparel@uwaterloo.ca / [LinkedIn](https://www.linkedin.com/in/vidhi-ruparel/) ☺️
 - 💃🏻 Pronouns: she/her
 - 🚀 Fun fact: Love learning new languages and I currently speak ~7
+
+🌻🌻🌻🌻🌻
